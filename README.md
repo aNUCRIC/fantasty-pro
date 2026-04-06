@@ -1,0 +1,2 @@
+# fantasty-pro
+FANTASTY KNOWLEDGE GAIN
